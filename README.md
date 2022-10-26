@@ -10,5 +10,11 @@ I can do:
 
 - python
 - Java
-- accounting work
+- swimming
 - basketball
+
+# Want to know me more?
+
+Please contact with me via email
+
+jokerevoltroger@163.com
